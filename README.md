@@ -6,6 +6,6 @@
 - 💬 Ask me about my experience at the NU Lodnon, DraftKings or Equinor internship
   
 ⚡ Fun facts:
-- I really love London, I'm a curious wanderer and enjoy learning about the city hisotry, interesting sights, churches, museums, garders, and so on.
+- I really love London, I'm a curious wanderer and enjoy learning about the city history, interesting sights, churches, museums, garders, and so on.
 - I'm slowly getting into F1 and am very happy to chat about it.
 - I enjoy playing tennis in my free time. 
